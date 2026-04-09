@@ -1,0 +1,1 @@
+# 24104901_Sait-Faik-EkiciPythonProje
